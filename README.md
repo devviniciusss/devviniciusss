@@ -22,6 +22,6 @@ Apaixonado por Tecnologia, Programação e Cursando "Técnico em Desenvolvimento
 
 ## E-mail para contato
 
-- [Gmail - Thiago Vinicius](https://gmail.com/thviniciusss@gmail.com)
+- [Gmail - Thiago Vinicius](https://gmail.com/thviniciusss@gmail.com)<br/>
 
 
